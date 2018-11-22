@@ -35,10 +35,7 @@ https://bestlife-jessy.bitbucket.io/lost.html?inviter=184343
 ## 小欧视频官方网址是多少？ 
 
 我知道的小欧视频官网有这么两个：
-* http://哦叉叉.com
-* http://javc.fun
-
-可能都需要梯子才能打开。
+（为了不被xx，你懂的，请点左上角“Branch：master”，切换到：develop就可以看到官网网址了）
 
 
 ## 小欧App看视频快不快？ 
