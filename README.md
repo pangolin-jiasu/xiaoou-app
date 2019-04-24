@@ -12,7 +12,7 @@
 
 请到这个永久链接下载（大多数地方猛戳进入，某些地区可能无法直接打开，请自备梯子）：
 
-https://bestlife-jessy.bitbucket.io/?inviter=184343
+小欧全拼点tv
 
 
 ## 小欧App注册邀请码是什么？ 
@@ -27,7 +27,7 @@ https://bestlife-jessy.bitbucket.io/?inviter=184343
 
 从官方客服了解到的永久网址：
 
-https://bestlife-jessy.bitbucket.io/lost.html?inviter=184343
+小欧全拼点tv
 
 如果直接点击打不开，请自备梯子。
 
@@ -35,8 +35,8 @@ https://bestlife-jessy.bitbucket.io/lost.html?inviter=184343
 ## 小欧视频官方网址是多少？ 
 
 我知道的小欧视频官网有这么两个：
-* http://哦叉叉.com
-* http://javc.fun
+* 小欧全拼点tv
+* 哦叉叉点com
 
 可能都需要梯子才能打开。
 
